@@ -1,4 +1,5 @@
-# my_organizer
+#                                                          My Organizer
+
 Organizing your workplace is vital for your business to thrive long term. Along with establishing a sense of structure and order, an organized work environment promotes team spirit. Your business will also run more efficiently.
 
                                                             1.Morale
